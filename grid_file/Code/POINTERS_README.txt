@@ -1,4 +1,4 @@
-#Kilroy wuz here
+#Kilroy wuz here. No he wasn't
 
 
 # HANDY COMMANDS
